@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sulfurv2(not bread)
+- 👀 I’m interested in BREAD
+- 🌱 I’m currently learning about BREAD
+- 💞️ I’m looking to collaborate with BREAD
+- 🗿 i realy like B R E A D
